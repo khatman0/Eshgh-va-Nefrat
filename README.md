@@ -1,1 +1,0 @@
-# Eshgh-va-Nefrat
